@@ -1,6 +1,4 @@
 # gpltd1
-tt
-des
-p
-sauf
-maman
+lkjg
+zqklqrg
+qgr
