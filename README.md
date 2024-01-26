@@ -1,6 +1,5 @@
-# gpltd1
-tt
-des
-p
-sauf
-maman
+Ici 
+C'est Octave
+Qui a 
+modifie
+le texte
