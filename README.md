@@ -1,6 +1,6 @@
 # gpltd1
-tt
-des
-p
-sauf
-maman
+qu
+oi
+cou
+be
+ee
