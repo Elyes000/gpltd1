@@ -9,3 +9,14 @@ lkjg
 zqklqrg
 qgr
 
+qu
+oi
+cou
+be
+ee
+
+az
+er
+rt
+ty
+yu
